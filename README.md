@@ -5,6 +5,7 @@
 - 📫 How to reach me on FB
 - 😄 Pronouns: ~~
 - ⚡ Fun fact: no fact
+- I enjoy the moments
   hehehe
 <!---
 vuvanduc2210s/vuvanduc2210s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
